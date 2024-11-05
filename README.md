@@ -6,13 +6,13 @@
 - 😄 Pronouns: Him
 - ⚡ Fun fact: idc what write here
 
-**     .--.
+       .--.
       |o_o |
       |:_/ |
      //   \ \
     (|     | )
    /'\_   _/`\
-   \___)=(___/    **
+   \___)=(___/
 
 <!---
 Glad to feel the part of the community, have a good time everyone!
