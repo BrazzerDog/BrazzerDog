@@ -18,4 +18,5 @@ Glad to feel the part of the community, have a good time everyone!
 --->
 ![image](https://github.com/user-attachments/assets/2e54ae2d-30ce-4161-b6f8-5289bfcbfad6)
 [stepik-certificate-58852-0827418.pdf](https://github.com/user-attachments/files/18551589/stepik-certificate-58852-0827418.pdf)
+https://stepik.org/cert/2676776
 
