@@ -16,6 +16,7 @@
 <!---
 Glad to feel the part of the community, have a good time everyone!
 --->
-![image](https://github.com/user-attachments/assets/2e54ae2d-30ce-4161-b6f8-5289bfcbfad6)
-[stepik-certificate-58852-0827418.pdf](https://github.com/user-attachments/files/18551589/stepik-certificate-58852-0827418.pdf)
+![image](https://github.com/user-attachments/assets/8cd9e8e5-fca5-41da-ac69-3beba82fb95c)
+
+[stepik-certificate-58852-0827418.pdf](https://github.com/user-attachments/files/18575868/stepik-certificate-58852-0827418.pdf)
 
