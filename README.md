@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anybody 
 - 📫 How to reach me @Cissccoo - Telegram 
 - 😄 Pronouns: Him
-- ⚡ Fun fact: idc what write here
+- ⚡ Fun fact: that is a kind new account
 
           .--.
          |o_o |
